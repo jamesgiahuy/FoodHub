@@ -10,4 +10,4 @@ Challenge 2
 19207011 - Lê Nguyên Khánh
 
 
-https://studenthcmusedu-my.sharepoint.com/:v:/g/personal/19207072_student_hcmus_edu_vn/EbhWH1gAQ6hMv_wh9NmHh9YBbKk7chdrv85G-dRH0-FFFQ?e=Pur1ET
+https://studenthcmusedu-my.sharepoint.com/:v:/r/personal/19207072_student_hcmus_edu_vn/Documents/Attachments/2023-02-14%2018-17-17.mp4?csf=1&web=1&e=dkif57
